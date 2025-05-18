@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/670e8504967e5b89eb493cb3ebeb9a9b/cfa222120aa4967a-4a/s400x600/7933745591e0b399dda891f76ecfe640b9b2097c.gif">
+<img src="https://i.redd.it/hox3vhai9pqe1.gif">
 </p>
 
 <p align="center">
